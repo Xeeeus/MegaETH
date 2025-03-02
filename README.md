@@ -1,2 +1,2 @@
 # MegaETH
-MegaETH--BAS
+by: @smelovv_nik (TG)
